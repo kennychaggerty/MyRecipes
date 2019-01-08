@@ -5,9 +5,10 @@
 * 1/2 cup dried cherries
 * 1/2 cup roasted pecans chopped
 * 1 cup mayonnaise
-* 1/2 teaspoon salt
 * 1/2 teaspoon ground black pepper
 * celery leaves chopped (optional)
+
+
 
 ## Instructions
 Add chopped chicken to a large bowl along with celery, grapes, dried cherries, chopped pecans, mayonnaise, salt and pepper. 

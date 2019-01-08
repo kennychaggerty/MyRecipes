@@ -8,8 +8,6 @@
 * 1/2 teaspoon ground black pepper
 * celery leaves chopped (optional)
 
-
-
 ## Instructions
 Add chopped chicken to a large bowl along with celery, grapes, dried cherries, chopped pecans, mayonnaise, salt and pepper. 
 If using chopped celery leaves, add these as well. 

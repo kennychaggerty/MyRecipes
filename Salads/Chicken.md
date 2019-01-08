@@ -5,7 +5,6 @@
 * 1/2 cup dried cherries
 * 1/2 cup roasted pecans chopped
 * 1 cup mayonnaise
-* 1/2 teaspoon salt
 * 1/2 teaspoon ground black pepper
 * celery leaves chopped (optional)
 
